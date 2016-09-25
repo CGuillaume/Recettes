@@ -26,4 +26,6 @@ Ajouter la farine, la fécule et la levure sans mélanger.
 Battre les blancs en neige (avec une pincée de sel).  
 Incorporer les blancs battus avec la pâte et mélanger doucement en aérant.  
 
-Cuisson ? ? 
+Verser dans un moule à baba beurré.  
+
+**Cuisson :** 180°C - 15 à 20 mins. Bien surveiller sur les 5 dernières minutes
