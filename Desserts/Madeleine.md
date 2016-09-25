@@ -1,4 +1,4 @@
-# Madeleine à la manière de mémé
+# Madeleine à la manière de Mémé
 
 > Ce serai plus un gâteau à baba q'une madeleine...
 
