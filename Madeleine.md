@@ -21,10 +21,9 @@ Mettre à feu doux
 - 1 sachet de levure 
 - 1 sachet de sucre vanillé 
 
-Blanchir les jaunes d'oeufs avec le sucre  
-Incorporer la farine doucement  
-Ajouter la farine, la fécule et la levure  
-Battre les blancs en neige (avec une pincée de sel) 
-Incorporer les blancs battus avec la pâte et mélanger doucement en aérant  
+Blanchir les jaunes d'oeufs avec le sucre fin et vanillé et 2-3 cas d'eau.  
+Ajouter la farine, la fécule et la levure sans mélanger.  
+Battre les blancs en neige (avec une pincée de sel).  
+Incorporer les blancs battus avec la pâte et mélanger doucement en aérant.  
 
 Cuisson ? ? 
