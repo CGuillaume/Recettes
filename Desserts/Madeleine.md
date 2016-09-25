@@ -2,6 +2,8 @@
 
 > Ce serai plus un gâteau à baba q'une madeleine...
 
+![Madeleine](../Images/20160925_Madeleine.jpg "Madeleine")
+
 ## Recette du livre
 
 50g de farine, 50g de sucre fin par oeufs  
