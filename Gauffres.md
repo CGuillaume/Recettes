@@ -11,9 +11,9 @@
 - 1 pincée de sel 
 - 1 sachet de sucre vanillé 
 
-Dans une terrine, mettre la farine et la levure, le sucre et le sel. 
-Faire une fontaine, ajouter les œufs et le parfum. Bien mélanger. 
-Ajouter l'huile et mélanger a nouveau. 
-Verser le lait petit a petit, et mélanger jusqu'à obtenir une pâte bien lisse. 
+Dans une terrine, mettre la farine et la levure, le sucre et le sel.  
+Faire une fontaine, ajouter les œufs et le parfum. Bien mélanger.  
+Ajouter l'huile et mélanger a nouveau.  
+Verser le lait petit a petit, et mélanger jusqu'à obtenir une pâte bien lisse.  
 
 Chauffer le gaufrier et faire cuire les gaufres.
